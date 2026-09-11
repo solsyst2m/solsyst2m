@@ -13,5 +13,5 @@ dni: base.
 irl larry johnson & paul mccartney
 bye :)
 
-**<img width="653" height="257" alt="image" src="https://github.com/user-attachments/assets/2d257874-e940-4259-8889-a450fbdc6064" />
+<img width="653" height="257" alt="image" src="https://github.com/user-attachments/assets/2d257874-e940-4259-8889-a450fbdc6064" />
 
