@@ -1,16 +1,13 @@
-## Hi there 👋
+hi, i’m solar aka sol & sasha. only he/him. 
 
-<!--
-**solsyst2m/solsyst2m** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/3038de81-cb12-416d-9753-592e823dc082" />
 
-Here are some ideas to get you started:
+i don't mind C+H, but when I'm hanging out with friends, that's an absolute DNI.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="828" height="544" alt="image" src="https://github.com/user-attachments/assets/e56c50f2-913d-4c55-bae1-4e614436dff1" />
+
+most of the time I'm AFK, w2i pls. dni: base.
+
+**<img width="653" height="257" alt="image" src="https://github.com/user-attachments/assets/2d257874-e940-4259-8889-a450fbdc6064" />
+
+irl larry johnson & paul mccartney
