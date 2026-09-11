@@ -4,7 +4,7 @@ hi, i’m solar aka sol & sasha. only he/him.
 
 i don't mind C+H, but when I'm hanging out with friends, that's an absolute DNI.
 
-<img width="828" height="544" alt="image" src="https://github.com/user-attachments/assets/e56c50f2-913d-4c55-bae1-4e614436dff1" />
+<img width="1200" height="813" alt="image" src="https://github.com/user-attachments/assets/0782031e-3a07-4a44-bdb6-ff572435665f" />
 
 most of the time I'm AFK, w2i pls. dni: base.
 
