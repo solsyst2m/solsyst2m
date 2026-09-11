@@ -2,8 +2,6 @@ hello !
 
 i’m solar aka sol & sasha. he/him. 
 
-<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/3038de81-cb12-416d-9753-592e823dc082" />
-
 i don't mind C+H, but when I'm hanging out with friends, that's an absolute DNI.
 
 <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/3038de81-cb12-416d-9753-592e823dc082" />
