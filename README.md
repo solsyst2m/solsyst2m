@@ -1,5 +1,5 @@
 <div align="center">
-  hello !
+  𝗵𝗲𝗹𝗹𝗼 !
 
 i’m solar aka sol & sasha. he/him. 
 
