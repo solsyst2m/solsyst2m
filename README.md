@@ -13,7 +13,7 @@
 𝘄𝟮𝗶 𝗽𝗹𝘀 . . 
 𝗱𝗻𝗶: 𝗯𝗮𝘀𝗲.
 
-𝗶𝗿𝗹 𝗹𝗮𝗿𝗿𝘆 𝗷𝗼𝗵𝗻𝘀𝗼𝗻 & 𝗽𝗮𝘂𝗹 𝗺𝗰𝗰𝗮𝗿𝘁𝗻𝗲𝘆
+𝗶𝗿𝗹 𝗹𝗮𝗿𝗿𝘆 𝗷𝗼𝗵𝗻𝘀𝗼𝗻 & 𝗽𝗮𝘂𝗹 𝗺𝗰𝗰𝗮𝗿𝘁𝗻𝗲𝘆 
 𝗯𝘆𝗲𝗲 :)
 
 <img width="654" height="350" alt="image" src="https://github.com/user-attachments/assets/2d257874-e940-4259-8889-a450fbdc6064" />
