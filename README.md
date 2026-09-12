@@ -1,19 +1,19 @@
 <div align="center">
-  𝗵𝗲𝗹𝗹𝗼 !
+  𝗵𝗲𝗹𝗹𝗼 
 
-i’m solar aka sol & sasha. he/him. 
+𝗶’𝗺 𝘀𝗼𝗹𝗮𝗿 𝗮𝗸𝗮 𝙨𝙤𝙡 & 𝘀𝗮𝘀𝗵𝗮. 𝗵𝗲/𝗵𝗶𝗺. 
+𝗼𝗽𝗲𝗻 𝘁𝗼 𝗺𝗲𝗲𝘁𝗶𝗻𝗴 𝗻𝗲𝘄 𝗽𝗲𝗼𝗽𝗹𝗲 !
 
-i don't mind C+H, but when I'm hanging out with friends, that's an absolute DNI.
-
-music tastes: The Beatles, Queen, Deftones, The Cure, Depeche Mode, The Black Crowes, Radiohead, London After Midnight, David Bowie, Макулатура, Little Richard, Elvis Presley n more ... 
+𝗶 𝗱𝗼𝗻'𝘁 𝗺𝗶𝗻𝗱 𝗖+𝗛, 𝗯𝘂𝘁 𝘄𝗵𝗲𝗻 𝗜'𝗺 𝗵𝗮𝗻𝗴𝗶𝗻𝗴 𝗼𝘂𝘁 𝘄𝗶𝘁𝗵 𝗳𝗿𝗶𝗲𝗻𝗱𝘀, 𝘁𝗵𝗮𝘁'𝘀 𝗗𝗡𝗜.
+𝗺𝘂𝘀𝗶𝗰 𝘁𝗮𝘀𝘁𝗲𝘀: 𝗧𝗵𝗲 𝗕𝗲𝗮𝘁𝗹𝗲𝘀, 𝗤𝘂𝗲𝗲𝗻, 𝗗𝗲𝗳𝘁𝗼𝗻𝗲𝘀, 𝗧𝗵𝗲 𝗖𝘂𝗿𝗲, 𝗗𝗲𝗽𝗲𝗰𝗵𝗲 𝗠𝗼𝗱𝗲, 𝗧𝗵𝗲 𝗕𝗹𝗮𝗰𝗸 𝗖𝗿𝗼𝘄𝗲𝘀, 𝗥𝗮𝗱𝗶𝗼𝗵𝗲𝗮𝗱, 𝗟𝗼𝗻𝗱𝗼𝗻 𝗔𝗳𝘁𝗲𝗿 𝗠𝗶𝗱𝗻𝗶𝗴𝗵𝘁, 𝗗𝗮𝘃𝗶𝗱 𝗕𝗼𝘄𝗶𝗲, 𝗠𝗮𝗸𝘂𝗹𝗮𝘁𝘂𝗿𝗮, 𝗟𝗶𝘁𝘁𝗹𝗲 𝗥𝗶𝗰𝗵𝗮𝗿𝗱, 𝗘𝗹𝘃𝗶𝘀 𝗣𝗿𝗲𝘀𝗹𝗲𝘆 𝗻 𝗺𝗼𝗿𝗲 ...
 
 <img width="654" height="350" alt="image" src="https://github.com/user-attachments/assets/3038de81-cb12-416d-9753-592e823dc082" />
 
-most of the time I'm AFK
-w2i pls . . 
-dni: base.
+𝗺𝗼𝘀𝘁 𝗼𝗳 𝘁𝗵𝗲 𝘁𝗶𝗺𝗲 𝗜'𝗺 𝗔𝗙𝗞
+𝘄𝟮𝗶 𝗽𝗹𝘀 . . 
+𝗱𝗻𝗶: 𝗯𝗮𝘀𝗲.
 
-irl larry johnson & paul mccartney
+𝗶𝗿𝗹 𝗹𝗮𝗿𝗿𝘆 𝗷𝗼𝗵𝗻𝘀𝗼𝗻 & 𝗽𝗮𝘂𝗹 𝗺𝗰𝗰𝗮𝗿𝘁𝗻𝗲𝘆
 
 <img width="654" height="350" alt="image" src="https://github.com/user-attachments/assets/2d257874-e940-4259-8889-a450fbdc6064" />
-bye :)
+𝗯𝘆𝗲𝗲 :)
