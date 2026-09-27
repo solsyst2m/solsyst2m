@@ -5,4 +5,4 @@
    </p>
 mostly afk, so w2i pleassssse !
 
-<img width="735" height="472" alt="image" src="https://github.com/user-attachments/assets/968d74dc-18a0-4c5e-9802-b440f8df09a9" />
+
