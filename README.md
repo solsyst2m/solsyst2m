@@ -9,6 +9,8 @@ mostly afk, so w2i pleassssse ! & my fandoms: jjk , the beatles , sally face
 <img width="500" height="160" alt="image" src="https://github.com/user-attachments/assets/bb6160b5-3caf-4ec9-a7d6-f5d390dcb31f" />
 <div align="center">
 music tastes: the beatles, queen, depeche mode, deftones, david bowie
-i need my suguru
+  </p>
+  i need my suguru
+    </p>
 open to matching/duo cosplays (shippings & mutual fandoms)
 
